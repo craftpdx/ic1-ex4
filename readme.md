@@ -1,8 +1,10 @@
-Hufflepuff
+least favorite
 
-Notable members include Newt Scamander, Cedric Diggory and Nymphadora Tonks.
+Slytherin
 
-    ‘You might belong in Hufflepuff
-    Where they are just and loyal
-    Those patient Hufflepuffs are true
-    And unafraid of toil.’
+Notable members include Severus Snape, Draco Malfoy and (rather unfortunately) Lord Voldemort.
+
+    ‘Or perhaps in Slytherin
+    You’ll make your real friends
+    Those cunning folk use any means
+    To achieve their ends.’
